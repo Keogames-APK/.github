@@ -42,7 +42,7 @@ Stay ahead of the competition with frequent updates that add new features, fix b
 
 ## Gameplay: What to Expect in Keogames Free Fire APK 🕹️
 
-### High-Octane Battle Royale Action 💥  
+### High-Octane Free Fire Action 💥  
 Keogames Free Fire APK stays true to the core mechanics of the original game. You’ll drop into a map with 49 other players, scavenging for weapons and resources while striving to be the last survivor.
 
 ### Custom Modes and Challenges 🎯  
